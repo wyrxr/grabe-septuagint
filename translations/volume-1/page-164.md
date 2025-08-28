@@ -1,0 +1,25 @@
+**Original Text with Light OCR Corrections:**
+
+ΚΕΦ. ΚΘ΄. Ε Ξ Ο Δ Ο Σ 149
+ἕνα, καὶ ἐπιθήσουσιν ᾿Ααρών, καὶ οἱ υἱοὶ αὐτοῦ τὰς χεῖρας αὐτῶν ἐπὶ τὴν κεφαλὴν τοῦ χριοῦ. 16 Καὶ σφάξεις τὸν χριόν, καὶ λαβὼν τὸ αἷμα προσχεεῖς πρὸς τὸ θυσιαστήριον κύκλῳ. 17 Καὶ τὸν κριὸν διχοτομήσεις κατὰ μέλη, καὶ πλυνεῖς τὰ ἐνδόσθια αὐτοῦ καὶ τοὺς πόδας ὕδατι, καὶ ἐπιθήσεις ἐπὶ τὰ διχοτομήματα σὺν τῇ κεφαλῇ αὐτοῦ. 18 Καὶ ἀνοίσεις τὸν κριὸν ὅλον ἐπὶ τὸ θυσιαστήριον, ὁλοκαύτωμα τῷ Κυρίῳ εἰς ὀσμὴν εὐωδίας· θυσίασμα τῷ Κυρίῳ ἐστί. 19 Καὶ λήψῃ τὸν κριὸν τὸν δεύτερον, καὶ ἐπιθήσει ᾿Ααρὼν καὶ οἱ υἱοὶ αὐτοῦ τὰς χεῖρας αὐτῶν ἐπὶ τὴν κεφαλὴν τοῦ χριοῦ. 20 Καὶ σφάξεις αὐτόν, καὶ λήψῃ τοῦ αἵματος αὐτοῦ, καὶ ἐπιθήσεις ἐπὶ τὸν λοβὸν τοῦ ὠτὸς ᾿Ααρὼν τοῦ δεξιοῦ, καὶ ἐπὶ τὸ ἄκρον τῆς χειρὸς τῆς δεξιᾶς, καὶ ἐπὶ τὸ ἄκρον τοῦ ποδὸς τοῦ δεξιοῦ, καὶ ἐπὶ τοὺς λοβοὺς τῶν ὤτων τῶν υἱῶν αὐτοῦ τῶν δεξιῶν, καὶ ἐπὶ τὰ ἄκρα τῶν χειρῶν αὐτῶν τῶν δεξιῶν, καὶ ἐπὶ τὰ ἄκρα τῶν ποδῶν αὐτῶν τῶν δεξιῶν. 21 Καὶ λήψῃ ἀπὸ τοῦ αἵματος τοῦ ἐπὶ τοῦ θυσιαστηρίου, καὶ ἀπὸ τοῦ ἐλαίου τῆς χρίσεως, καὶ ῥανεῖς ἐπὶ ᾿Ααρών, καὶ ἐπὶ τὴν στολὴν αὐτοῦ, καὶ ἐπὶ τοὺς υἱοὺς αὐτοῦ, καὶ ἐπὶ τὰς στολὰς τῶν υἱῶν αὐτοῦ μετ᾿ αὐτοῦ, καὶ ἁγιασθήσεται αὐτὸς καὶ ἡ στολὴ αὐτοῦ, καὶ οἱ υἱοὶ αὐτοῦ καὶ αἱ στολαὶ τῶν υἱῶν αὐτοῦ μετ᾿ αὐτοῦ· τὸ δὲ αἷμα τοῦ χριοῦ προσχεεῖς πρὸς τὸ θυσιαστήριον κύκλῳ. 22 Καὶ λήψῃ ἀπὸ τοῦ χριοῦ τὸ στέαρ αὐτοῦ, καὶ τὸ στέαρ τὸ κατακαλύπτον τὴν κοιλίαν, καὶ τὸν λοβὸν τοῦ ἥπατος, καὶ τοὺς δύο νεφρούς, καὶ τὸ στέαρ τὸ ἐπ᾿ αὐτῶν, καὶ τὸν 23 βραχίονα τὸν δεξιόν, (ἔστι γὰρ τελείωσις αὕτη·) καὶ ἄρτον ἕνα ἐξ ἐλαίου, καὶ λάγανον ἕν ἀπὸ τοῦ κανοῦ τῶν ἀζύμων τῶν προτεθειμένων ἔναντι Κυρίου· 24 καὶ ἐπιθήσεις τὰ πάντα ἐπὶ τὰς χεῖρας ᾿Ααρών, καὶ ἐπὶ τὰς χεῖρας τῶν υἱῶν αὐτοῦ, καὶ ἀφοριεῖς αὐτοὺς ἀφόρισμα ἔναντι Κυρίου· 25 καὶ δέξῃ αὐτὰ ἐκ τῶν χειρῶν αὐτῶν, καὶ ἀνοίσεις αὐτὰ ἐπὶ τὸ θυσιαστήριον τῆς ὁλοκαυτώσεως εἰς ὀσμὴν εὐωδίας ἔναντι Κυρίου· κάρπωμά ἐστι Κυρίῳ. 26 Καὶ λήψῃ τὸ στηθύνιον ἀπὸ τοῦ χριοῦ τῆς τελειώσεως, ὅ ἐστιν ᾿Ααρών, καὶ ἀφοριεῖς αὐτὸ ἀφόρισμα ἔναντι Κυρίου, καὶ ἔσται σοι ἐν μερίδι· 27 καὶ ἁγιάσεις τὸ στηθύνιον ἀφόρισμα, καὶ τὸν βραχίονα τοῦ ἀφαιρέματος, ὃς ἀφώρισται καὶ ὃς ἀφῄρηται ἀπὸ τοῦ χριοῦ τῆς τελειώσεως ἀπὸ τοῦ ᾿Ααρὼν καὶ ἀπὸ τῶν υἱῶν αὐτοῦ, 28 καὶ ἔσται ᾿Ααρὼν καὶ τοῖς υἱοῖς αὐτοῦ νόμιμον αἰώνιον παρὰ τῶν υἱῶν ᾿Ισραήλ·
+
+---
+
+**English Translation:**
+
+CHAPTER XXIX. EXODUS
+
+15 one, and Aaron and his sons shall lay their hands upon the head of the ram.
+16 And thou shalt slay the ram; and taking the blood, thou shalt pour it round about upon the altar.
+17 And the ram shalt thou cut into pieces according to its parts; and thou shalt wash its inwards and its feet with water; and thou shalt lay them upon the pieces, with its head.
+18 And thou shalt offer the whole ram upon the altar, a burnt offering unto the Lord for a savor of sweet smell; it is a sacrifice unto the Lord.
+19 And thou shalt take the second ram; and Aaron and his sons shall lay their hands upon the head of the ram.
+20 And thou shalt slay it; and thou shalt take of its blood, and put it upon the lobe of Aaron’s right ear, and upon the tip of his right hand, and upon the tip of his right foot; and upon the lobes of the right ears of his sons, and upon the tips of their right hands, and upon the tips of their right feet.
+21 And thou shalt take of the blood that is upon the altar, and of the oil of anointing, and shalt sprinkle it upon Aaron, and upon his garment, and upon his sons, and upon the garments of his sons with him; and he shall be hallowed, and his garment, and his sons, and the garments of his sons with him; but the blood of the ram shalt thou pour round about upon the altar.
+22 And thou shalt take from the ram its fat, and the fat that covereth the belly, and the lobe of the liver, and the two kidneys, and the fat that is upon them, and the right shoulder;
+23 (for this is the ram of consecration;) and one loaf of bread made with oil, and one unleavened cake from the basket of unleavened bread, which are laid before the Lord;
+24 and thou shalt place all these upon the hands of Aaron, and upon the hands of his sons; and thou shalt wave them for a wave offering before the Lord.
+25 And thou shalt take them from their hands, and offer them up upon the altar for a burnt offering, for a savor of sweet smell before the Lord; it is an offering to the Lord.
+26 And thou shalt take the breast from the ram of consecration, which is Aaron’s [portion], and shalt wave it for a wave offering before the Lord; and it shall be unto thee for a portion.
+27 And thou shalt sanctify the breast of the wave offering, and the shoulder of the heave offering, which hath been waved and which hath been taken from the ram of consecration, from Aaron and from his sons;
+28 and it shall be unto Aaron and unto his sons a perpetual statute from the children of Israel.

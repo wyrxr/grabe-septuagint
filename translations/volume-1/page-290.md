@@ -1,0 +1,25 @@
+Here is the corrected Greek text and its translation, adhering to your specified requirements:
+
+***
+
+#### The Original Text with Light OCR Corrections
+
+ΚΕΦ. ΚΑ΄. ΑΡΙΘΜΟΙ 275
+
+ἐκεῖθεν τὸ φρέαρ· τοῦτό ἐστι τὸ φρέαρ, ὃ εἶπε Κύριος πρὸς Μωυσῆν· συνάγαγε τὸν λαόν, καὶ δώσω αὐτοῖς ὕδωρ πιεῖν. 17 Τότε ᾖσεν Ἰσραὴλ τὸ ἄσμα τοῦτο ἐπὶ τοῦ φρέατος· ἐξάργετε αὐτῷ· φρέαρ 18 ὤρυξαν αὐτὸ ἄρχοντες, ἐξελατόμησαν αὐτὸ βασιλεῖς ἐθνῶν ἐν τῇ βασιλείᾳ αὐτῶν, ἐν τῷ κυριεῦσαι αὐτῶν. Καὶ ἀπὸ φρέατος, εἰς Μαυθανεῖν· καὶ ἀπὸ Μανθανεΐν, εἰς Νααλιήλ· καὶ ἀπὸ Νααλιήλ, εἰς 19 Βαμώθ· καὶ ἀπὸ Βαμώθ, εἰς Νααλιήλ· καὶ ἀπὸ Νααλιήλ, εἰς Βαμώθ· καὶ ἀπὸ Βαμώθ, εἰς Νάπην, ἡ ἔστιν ἐν τῷ πεδίῳ Μωάβ 20 ἀπὸ κορυφῆς τοῦ λελαξευμένου, τὸ βλέπον κατὰ πρόσωπον τῆς ἐρήμου. 21 Καὶ ἀπέστειλε Μωυσῆς πρέσβεις πρὸς Σηὼν Βασιλέα Ἀμορῥαίων, λόγοις εἰρηνικοῖς λέγων· 22 παρελευσόμεθα διὰ τῆς γῆς σου, ὁδῷ πορευσόμεθα· οὐκ ἐκκλινοῦμεν οὔτε εἰς ἀγρόν, οὔτε εἰς ἀμπελῶνα σου, οὐ πιόμεθα ὕδωρ ἐκ φρέατός σου· ὁδῷ βασιλικῇ πορευκόμεθα, ἕως ἂν παρέλθωμεν τὰ ὅριά σου. 23 Καὶ οὐκ ἔδωκε Σηὼν τῷ Ἰσραὴλ παρελθεῖν διὰ τῶν ὁρίων αὐτοῦ· καὶ συνήγαγε Σηὼν πάντα τὸν λαὸν αὐτοῦ, καὶ ἐξῆλθε παρατάξασθαι τῷ Ἰσραὴλ εἰς τὴν ἔρημον· καὶ ἦλθεν εἰς Ἰασσᾶ, καὶ παρετάξατο τῷ Ἰσραήλ. 24 Καὶ ἐπάταξεν αὐτὸν Ἰσραὴλ φόνῳ μαχαίρας, καὶ κατεκυρίευσαν τῆς γῆς αὐτοῦ ἀπὸ Ἀρνὼν ἕως Ἰαβόκ, ἕως υἱῶν Ἀμμὰν· ὅτι Ἰαζὴρ ὅρια υἱῶν Ἀμμὰν ἐστι. 25 Καὶ ἔλαβεν Ἰσραὴλ πάσας τὰς πόλεις ταύτας, καὶ κατώκησεν Ἰσραὴλ ἐν πάσαις ταῖς πόλεσι τῶν Ἀμορῥαίων, ἐν Ἑσεβὼν καὶ ἐν πάσαις ταῖς συγκυρούσαις αὐτῇ. 26 Ἔστι γὰρ Ἑσεβὼν πόλις Σηὼν τοῦ βασιλέως τῶν Ἀμορῥαίων· καὶ οὗτος ἐπολέμησε βασιλέα Μωὰβ τὸ πρότερον, καὶ ἔλαβε πᾶσαν τὴν γῆν αὐτοῦ ἀπὸ Ἀροὴρ ἕως Ἀρνὼν. 27 Διὰ τοῦτο ἐροῦσιν οἱ αἰνιγματισταί· ἔλθατε εἰς Ἑσεβών, ἵνα οἰκοδομηθῇ, καὶ κατασκευασθῇ πόλις Σηὼν· 28 ὅτι πῦρ ἐξῆλθεν ἐξ Ἑσεβών, φλὸξ ἐκ πόλεως Σηὼν, καὶ κατέφαγεν ἕως Μωάβ, καὶ κατέπιε στήλας Ἀρνὼν. 29 Οὐαί σοι Μωάβ, ἀπώλου λαὸς Χαμῶς· ἀπεδόθησαν οἱ υἱοὶ αὐτῶν διασώζεσθαι, καὶ αἱ θυγατέρες αὐτῶν αἰχμάλωτοι τῷ βασιλεῖ τῶν Ἀμορῥαίων Σηὼν· 30 καὶ τὸ σπέρμα αὐτῶν ἀπολεῖται, Ἑσεβὼν ἕως Δαιβὼν καὶ αἱ γυναῖκες αὐτῶν ἔτι προσεξέκαυσαν πῦρ ἐπὶ Μωάβ. 31 Κατώκησε δὲ Ἰσραὴλ ἐν πάσαις ταῖς πόλεσι τῶν Ἀμορῥαίων. 32 Καὶ ἀπέστειλε Μωυσῆς κατασκευάσθαι τὴν Ἰαζήρ. Καὶ κατελάβοντο αὐτήν, καὶ τὰς κώμας αὐτῆς, καὶ ἐξέβαλον τὸν Ἀμορῥαῖον τὸν ὄντα ἐκεῖ. 33 Καὶ ἐπιστρέψαντες, ἀνέβησαν ὁδὸν τὴν εἰς Βασὰν· καὶ ἐξῆλθεν Ὤγ βασιλεὺς τῆς Βασὰν εἰς συνάντησιν αὐτοῖς, καὶ πᾶς ὁ λαὸς αὐτοῦ.
+
+***
+
+#### A Free and Highly Literary Translation
+
+### Chapter 21
+
+**16** From thence [they came to] the well. This is the well whereof the LORD spake unto Moses, [saying], "Gather the people, and I will give them water to drink." **17** Then sang Israel this song concerning the well: "Excavate ye it, O well! **18** The princes dug it, the kings of nations hewed it out by their own dominion and by their own sovereignty."
+
+And from the well [they journeyed] to Matthanein; and from Matthanein to Nahaliel; **19** and from Nahaliel to Bamoth; and from Bamoth to Nahaliel; and from Nahaliel to Bamoth; and from Bamoth to Napha, which is in the plain of Moab, **20** from the top of the hewn peak, which looketh out upon the face of the desert.
+
+**21** And Moses sent ambassadors unto Sihon, king of the Amorites, with words of peace, saying: **22** "We shall pass through thy land; by the way shall we go, nor shall we turn aside, neither into thy field, nor into thy vineyard; nor shall we drink water from thy well: by the King's Highway shall we journey, until we have passed thy borders."
+
+**23** But Sihon would not suffer Israel to pass through his borders; instead, Sihon gathered all his people together, and went out to array himself against Israel into the wilderness; and he came to Jassa, and arrayed himself against Israel. **24** And Israel smote him with the edge of the sword, and took possession of his land, from Arnon even unto Jabbok, and unto the children of Ammon: for Jazer is the border of the children of Ammon. **25** And Israel took all these cities, and Israel dwelt in all the cities of the Amorites, in Heshbon and in all her dependent towns. **26** For Heshbon is the city of Sihon, king of the Amorites: and he had warred against the king of Moab aforetime, and had taken all his land from Aroer even unto Arnon. **27** Therefore shall the proverb-speakers say: "Come ye unto Heshbon, that the city of Sihon may be built and made ready! **28** For a fire went out from Heshbon, a flame from the city of Sihon, and it devoured unto Moab, and swallowed up the pillars of Arnon. **29** Woe to thee, O Moab! Thou art undone, O people of Chemosh! Their sons were delivered up to be saved, and their daughters as captives to Sihon, king of the Amorites; **30** and their seed shall perish, from Heshbon even unto Daibon; and their women have still further kindled fire upon Moab."
+
+**31** Thus Israel dwelt in all the cities of the Amorites. **32** And Moses sent to survey Jazer: and they took it, and its villages, and cast out the Amorite that was there. **33** And turning back, they went up the way to Bashan; and Og, king of Bashan, went out to meet them, and all his people.

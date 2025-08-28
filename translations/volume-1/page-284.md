@@ -1,0 +1,26 @@
+**Original Text with Light OCR Corrections:**
+
+ΚΕΦ. ΙΗʹ. ΑΡΙΘΜΟΙ 269
+νόμιμον αἰώνιον. πᾶς καθαρὸς ἐν τῷ οἴκῳ σου ἔδεται αὐτά. [12] Πᾶσα ἀπαρχὴ ἐλαίου, καὶ πᾶσα ἀπαρχὴ σίτου καὶ οἴνου, ἀπαρχὴ αὐτῶν ὅσα ἂν δῶσι τῷ Κυρίῳ, σοι δέδωκα αὐτά. [13] Τὰ πρωτογενήματα πάντα ὅσα ἐν τῇ γῇ αὐτῶν, ὅσα ἂν ἐνέγκωσι Κυρίῳ, σοι ἔσται· πᾶς καθαρὸς ἐν τῷ οἴκῳ σου ἔδεται αὐτά. [14] Πᾶν ἀνατιθεματισμένον ἐν τοῖς υἱοῖς Ἰσραήλ, σοι ἔσται. [15] Καὶ πᾶν διανοῖγον πᾶσαν μήτραν ἀπὸ πάσης σαρκός, ὅσα προσφέρουσι Κυρίῳ ἀπὸ ἀνθρώπου ἕως κτήνους, σοι ἔσται· ἀλλ᾿ ἢ λύτροις λυτρωθήσεται τὰ πρωτότοκα τῶν ἀνθρώπων, καὶ τὰ πρωτότοκα τῶν κτηνῶν τῶν ἀκαθάρτων λυτρώσῃ· [16] καὶ ἡ λύτρωσις αὐτοῦ ἀπὸ μηνιαίου, ἡ συντίμησις πέντε σίκλων κατὰ τὸν σίκλον τὸν ἅγιον· εἴκοσι ὀβολοί εἰσι. [17] Πλὴν πρωτότοκα μόσχων, καὶ πρωτότοκα προβάτων, καὶ πρωτότοκα αἰγῶν οὐ λυτρώσῃ· ἁγιά ἐστι, καὶ τὸ αἷμα αὐτῶν προσεχεῖς πρὸς τὸ θυσιαστήριον, καὶ τὸ στέαρ ἀνοίασεις πάρπωμα εἰς ὀσμὴν εὐωδίας Κυρίῳ· [18] καὶ τὰ κρέα ἔσται σοι, καθὰ καὶ τὸ στηθύνιον τοῦ ἐπιδέματος, καὶ κατὰ τὸν βραχίονα τὸν δεξιόν, ἔσται σοι. [19] Πᾶν ἀφαίρεμα τῶν ἁγίων, ὅσα ἐὰν ἀφέλωσιν οἱ υἱοὶ Ἰσραὴλ Κυρίῳ, δέδωκά σοι, καὶ τοῖς υἱοῖς σου, καὶ ταῖς θυγατράσι σου μετὰ σοῦ, νόμιμον αἰώνιον· διαθήκη ἁλὸς αἰωνίου ἔστιν ἔναντι Κυρίου, σοὶ καὶ τῷ σπέρματί σου μετὰ σέ. [20] Καὶ ἐλάλησε Κύριος πρὸς Ἀαρών· ἐν τῇ γῇ αὐτῶν οὐ κληρονομήσεις, καὶ μερὶς οὐκ ἔσται σοι ἐν αὐτοῖς· ὅτι ἐγὼ μερίς σου καὶ κληρονομία σου ἐν μέσῳ τῶν υἱῶν Ἰσραήλ. [21] Καὶ τοῖς υἱοῖς Λευὶ Ἰδοὺ δέδωκα πᾶν ἐπιδέκατον ἐν Ἰσραὴλ ἐν κλήρῳ, ἀντὶ τῶν λειτουργιῶν αὐτῶν, ὅσα αὐτοὶ λειτουργοῦσι λειτουργίαν ἐν τῇ σκηνῇ τοῦ μαρτυρίου. [22] Καὶ οὐ προσελεύσονται ἔτι οἱ υἱοὶ Ἰσραὴλ εἰς τὴν σκηνὴν τοῦ μαρτυρίου, λαβεῖν ἁμαρτίαν θανατηφόρον. [23] Καὶ λειτουργήσει ὁ Λευΐτης αὐτὸς τὴν λειτουργίαν τῆς σκηνῆς τοῦ μαρτυρίου, καὶ αὐτοὶ λήψονται τὰ ἁμαρτήματα αὐτῶν· νόμιμον αἰώνιον εἰς τὰς γενεὰς αὐτῶν. [24] Καὶ ἐν μέσῳ τῶν υἱῶν Ἰσραὴλ οὐ κληρονομήσουσι κληρονομίαν ὅτι τὰ δέκατα τῶν υἱῶν Ἰσραήλ, ὅσα ἂν ἀφορίσωσι Κυρίῳ ἀφαίρεμα, δέδωκα τοῖς Λευΐταις ἐν κλήρῳ· διὰ τοῦτο εἴρηκα αὐτοῖς· ἐν μέσῳ τῶν υἱῶν Ἰσραὴλ οὐ κληρονομήσουσι κλῆρον. [25] Καὶ ἐλάλησε Κύριος πρὸς Μωσῆν, λέγων· [26] καὶ τοῖς Λευΐταις λαλήσεις, καὶ ἐρεῖς πρὸς αὐτούς· ἐὰν λάβητε παρὰ τῶν υἱῶν Ἰσραὴλ τὸ ἐπιδέκατον, ὃ δέδωκα ὑμῖν παρ᾿ αὐτῶν ἐν κλήρῳ, καὶ
+
+---
+
+**Free and Highly Literary Translation:**
+
+a perpetual ordinance. Every clean person in thy house shall eat them.
+
+[12] All the firstfruit of oil, and all the firstfruit of grain and wine, their firstfruit, whatsoever they give unto the Lord, to thee have I given them.
+[13] All the firstfruits whatsoever [groweth] in their land, whatsoever they shall bring unto the Lord, shall be thine: every clean person in thy house shall eat them.
+[14] Every devoted thing among the children of Israel shall be thine.
+[15] And every firstborn [that] openeth every womb of all flesh, whatsoever they bring unto the Lord, from man even unto beast, shall be thine: yet the firstborn of men shall be redeemed with a ransom, and the firstborn of unclean beasts thou shalt redeem.
+[16] And the redemption of it [shall be] from a month old, the valuation [being] five shekels after the holy shekel; twenty obols are [therein].
+[17] But the firstborn of calves, and the firstborn of sheep, and the firstborn of goats, thou shalt not redeem; they are holy: and their blood thou shalt pour out upon the altar, and their fat shalt thou offer up as a covering for a sweet savour unto the Lord.
+[18] And the flesh shall be thine, even as the breast of the wave offering, and as the right shoulder, shall be thine.
+[19] All the heave offerings of the holy things, whatsoever the children of Israel shall set apart unto the Lord, I have given [it] to thee, and to thy sons, and to thy daughters with thee, for a perpetual ordinance: a perpetual covenant of salt is it before the Lord, to thee and to thy seed after thee.
+[20] And the Lord spake unto Aaron, [saying], In their land thou shalt not inherit, neither shall there be a portion for thee among them; for I am thy portion and thine inheritance in the midst of the children of Israel.
+[21] And behold, to the children of Levi have I given all the tenth in Israel for an inheritance, for their services which they perform, even the service in the tabernacle of testimony.
+[22] And the children of Israel shall no longer draw nigh unto the tabernacle of testimony, lest they incur a deadly sin.
+[23] But the Levite himself shall perform the service of the tabernacle of testimony, and they themselves shall bear their iniquities: a perpetual ordinance throughout their generations.
+[24] And among the children of Israel they shall not inherit an inheritance, because the tithes of the children of Israel, whatsoever they shall set apart as a heave offering unto the Lord, I have given to the Levites for an inheritance; therefore have I said unto them, Among the children of Israel they shall not inherit a portion.
+[25] And the Lord spake unto Moses, saying,
+[26] And unto the Levites shalt thou speak, and say unto them, When ye shall take from the children of Israel the tithe which I have given you from them for an inheritance, then
