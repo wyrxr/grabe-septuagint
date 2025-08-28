@@ -1,5 +1,3 @@
-The following is the corrected Greek text and its translation, rendered in an elevated literary style, blending the precision of Robert Alter with the majesty of the King James Bible, and employing a vocabulary appropriate for the mid-20th century.
-
 ### Genesis Chapter 7
 
 #### Original Text with light OCR corrections:

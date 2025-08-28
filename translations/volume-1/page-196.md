@@ -1,5 +1,3 @@
-Here is the corrected Greek text and its translation, rendered in a literary style blending Robert Alter's precision with the majesty of the King James Bible, while adhering to Eastern Orthodox theological nuance.
-
 ### Original Text with Light OCR Corrections
 
 ΚΕΦ. ς΄. Ζ΄. ΛΕΥΙΤΙΚΟΝ
