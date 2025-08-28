@@ -1,0 +1,24 @@
+## 1. Original Text with Light OCR Corrections:
+
+ΒΑΣΙΛΕΙΩΝ Δ´. ΚΕΦ. Α´.
+αὐτὸν, καὶ εἶπεν· ἄνθρωπε τοῦ Θεοῦ, ὁ βασιλεὺς ἐκάλεσέ σε, κατάβηθι.
+**10** Καὶ ἀπεκρίθη Ἠλιοὺ, καὶ εἶπε πρὸς τὸν πεντηκόνταρχον· καὶ εἰ ἄνθρωπος τοῦ Θεοῦ ἐγώ, καταβήσεται πῦρ ἐκ τοῦ οὐρανοῦ, καὶ καταφάγεται σε, καὶ τοὺς πεντήκοντά σου· καὶ κατέβη πῦρ ἐκ τοῦ οὐρανοῦ, καὶ κατέφαγεν αὐτὸν, καὶ τοὺς πεντήκοντα αὐτοῦ.
+**11** Καὶ προσέθηκεν ὁ βασιλεὺς, καὶ ἀπέστειλε πρὸς αὐτὸν ἄλλον πεντηκόνταρχον, καὶ τοὺς πεντήκοντα αὐτοῦ· καὶ ἀνέβη, καὶ ἐλάλησεν ὁ πεντηκόνταρχος πρὸς αὐτὸν, καὶ εἶπεν· ἄνθρωπε τοῦ Θεοῦ, τάδε λέγει ὁ βασιλεὺς, ταχέως κατάβηθι.
+**12** Καὶ ἀπεκρίθη Ἠλιοὺ, καὶ ἐλάλησε πρὸς αὐτὸν, καὶ εἶπεν· εἰ ἄνθρωπος τοῦ Θεοῦ εἰμι ἐγὼ, καταβήσεται πῦρ ἐκ τοῦ οὐρανοῦ, καὶ καταφάγεται σε, καὶ τοὺς πεντήκοντά σου· καὶ κατέβη πῦρ ἐκ τοῦ οὐρανοῦ, καὶ κατέφαγεν αὐτὸν, καὶ τοὺς πεντήκοντα αὐτοῦ.
+**13** Καὶ προσέθηκεν ὁ βασιλεὺς ἀποστεῖλαι (ἡγούμενον) πεντηκόνταρχον τρίτον, καὶ τοὺς πεντήκοντα αὐτοῦ· καὶ ἀναβὰς ἦλθε (πρὸς αὐτὸν) ὁ πεντηκόνταρχος ὁ τρίτος, καὶ ἔκαμψεν ἐπὶ τὰ γόνατα ἑαυτοῦ κατέναντι Ἠλιοὺ, καὶ ἐδεήθη αὐτοῦ, καὶ ἐλάλησε πρὸς αὐτὸν, καὶ εἶπεν· ἄνθρωπε τοῦ Θεοῦ, ἐντιμωθήτω ἡ ψυχή μου, καὶ ἡ ψυχὴ τῶν δούλων σου τούτων τῶν πεντήκοντα ἐν ὀφθαλμοῖς σου·
+**14** ἰδοὺ κατέβη πῦρ ἐκ τοῦ οὐρανοῦ, καὶ κατέφαγε τοὺς δύο πεντηκοντάρχους τοὺς πρώτους, καὶ τοὺς πεντήκοντα αὐτῶν· καὶ νῦν ἐντιμωθήτω δὴ ἡ ψυχὴ τῶν δούλων σου ἐν ὀφθαλμοῖς σου.
+**15** Καὶ ἐλάλησεν ἄγγελος Κυρίου πρὸς Ἠλιοὺ, καὶ εἶπε· κατάβηθι μετ᾿ αὐτοῦ, μὴ φοβηθῇς ἀπὸ προσώπου αὐτῶν· καὶ ἀνέστη Ἠλιοὺ, καὶ κατέβη μετ᾿ αὐτοῦ πρὸς τὸν βασιλέα,
+**16** καὶ ἐλάλησε πρὸς αὐτὸν, καὶ εἶπε· τάδε λέγει Κύριος· ἀνθ᾿ ὧν ἐξαπέστειλας ἀγγέλους ἐπερωτῆσαι ἐν τῇ Βάαλ μυῖαν, θεὸν Ἀκκαρὼν παρὰ τὸ μὴ εἶναι Θεὸν ἐν Ἰσραήλ, τοῦ ἐκζητῆσαι ἐν ῥήματι αὐτοῦ· οὐχ οὕτως. ἡ κλίνη ἐφ᾿ ἧς ἀνέβης ἐκεῖ, οὐ καταβήσῃ ἀπ᾿ αὐτῆς, ὅτι θανάτῳ ἀποθανῇ.
+**17** Καὶ ἀπέθανεν (Ὀχοζίας) κατὰ τὸ ῥῆμα Κυρίου ὃ ἐλάλησεν Ἠλιοὺ· καὶ Ἰωρὰμ υἱὸς Ἀχαὰβ ἐβασίλευσεν ἐπὶ Ἰσραὴλ ἐν Σαμαρείᾳ ἔτη δέκα δύο, ἐν ἔτει ὀκτωκαιδεκάτῳ Ἰωσαφὰτ βασιλέως Ἰούδα, καὶ ἐποίησε τὸ πονηρὸν ἐνώπιον Κυρίου, πλὴν οὐχ ὡς οἱ ἀδελφοὶ αὐτοῦ, οὐδ᾿ ὡς ἡ μήτηρ αὐτοῦ· καὶ ἀπέστησε τὰς στήλας τοῦ Βάαλ ἃς ἐποίησεν ὁ πατὴρ αὐτοῦ, καὶ συνέτριψεν αὐτάς. πλὴν ἐν ταῖς ἁμαρτίαις οἴκου Ἱεροβοάμ, ὃς ἐξήμαρτε τὸν Ἰσραὴλ, ἐκολλήθη, οὐκ ἀπέστη ἀπ᾿
+
+## 2. A Free and Highly Literary Translation:
+
+unto him, and said, "O man of God, the king hath called thee; come down!"
+**10** And Elijah answered and said unto the captain of fifty, "If I be a man of God, then let fire come down from heaven, and consume thee and thy fifty [men]." And there came down fire from heaven, and consumed him and his fifty [men].
+**11** And the king sent again unto him another captain of fifty with his fifty [men]. And he went up and spake unto him, and said, "O man of God, thus saith the king, 'Come down quickly!'"
+**12** And Elijah answered and spake unto him, and said, "If I be a man of God, then let fire come down from heaven, and consume thee and thy fifty [men]." And the fire of God came down from heaven, and consumed him and his fifty [men].
+**13** And the king sent yet again a third captain of fifty [men], even a commander, with his fifty [men]. And the third captain of fifty went up, and came unto him, and he bowed upon his knees before Elijah, and besought him, and spake unto him, and said, "O man of God, let my life, I pray thee, and the life of these thy fifty servants, be precious in thy sight!
+**14** Behold, there came down fire from heaven, and consumed the two first captains of fifty with their fifty [men]; and now let the life of thy servants, I pray thee, be precious in thy sight."
+**15** And the angel of the Lord spake unto Elijah, and said, "Go down with him; fear not because of them." So Elijah arose, and went down with him unto the king,
+**16** and he spake unto him, and said, "Thus saith the Lord: Forasmuch as thou hast sent messengers to inquire of Baal-fly, the god of Ekron, as if there were no God in Israel to inquire by His word, it shall not be so! The bed upon which thou art gone up there, thou shalt not come down from it, for thou shalt surely die."
+**17** So Ahaziah died according to the word of the Lord which Elijah had spoken. And Jehoram, the son of Ahab, reigned over Israel in Samaria twelve years, in the eighteenth year of Jehoshaphat king of Judah. And he did that which was evil in the sight of the Lord, yet not as his brothers, nor as his mother; for he removed the pillars of Baal which his father had made, and broke them in pieces. Nevertheless, to the sins of the house of Jeroboam, who had caused Israel to sin, he cleaved; he departed not from them.
