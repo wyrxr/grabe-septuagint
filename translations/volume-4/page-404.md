@@ -1,7 +1,3 @@
-Here is the corrected Greek text and its translation, rendered in a literary style blending Robert Alter's precision with the majesty of the King James Bible, while adopting modern vocabulary as of the mid-20th century.
-
----
-
 **1. The original text with light OCR corrections:**
 
 1937
