@@ -20,3 +20,12 @@ To increase the usefulness of this project, I have decided to include a translat
 The machine-generated translation is in the public domain in the United States based on current guidance from the US Copyright Office. Furthermore, the translation is free from copyright as it is not a derivative of nor does it substantially copy or include copyrighted translations. Where it does include similar or identical phrasing to copyrighted translations, this is due to the constraints of translating the same underlying work, which necessarily limits the range of creative expression required to create a faithful rendering. Biblical translations, especially ones based on a formal equivalence philosophy, possess only a "thin" copyright, meaning its copyright only protects against substantial verbatim copying of the original creative expression of the translator(s). 
 
 To reduce the likelihood that the AI translation would produce this kind of substantial verbatim copying, the AI was instructed to write in Jacobean English reminiscient of the King James Version or American Standard Version, two translations that are in the public domain in the United States. Checking portions the text produced against various translations shows that it does not conform substantially to nor provide verbatim quotation of the protected expression of popular currently-copyrighted Bible translations. Its differentiation is also bolstered by its base-text, the Grabe Septuagint, which is different from all available English Bible translations, most of which are based on the Hebrew Masoretic text, while existing English translations of the Septuagint utilize Swete's Septuagint, Rahlfs(-Hanhart), or the Göttingen edition. 
+
+## Use on Mount Athos
+
+There are claims online the this Athens edition is used on Mount Athos. I've included two research documents created by ChatGPT and Gemini which evaluate this fact. The results were:
+
+- Gemini: Likely to be false. (It proposes Apostoliki Diakonia as the most likely edition in current use in Greek monasteries on Mount Athos.)
+- ChatGPT: Very likely to be true *for the Greek monks*.
+
+If you have any additional information about this, please share!
